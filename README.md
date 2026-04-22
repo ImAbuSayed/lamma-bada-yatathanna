@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا نور عيني في ليالي الشوق
+> أبحث عن طيفك في كل مكان
+> روحي تنادي والقلب محروق
+> هل نلتقي بعد هذا الزمان
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
